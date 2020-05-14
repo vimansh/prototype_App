@@ -13,8 +13,3 @@ https://www.youtube.com/watch?v=sgzkY5vFKQQ  ( 12:43 min video)
 https://www.youtube.com/watch?v=oFYyTZwMyAg  ( 11:21 min video)
 
 
-these 3 videos will help you to go through this. 
-
-do not share this link or anything with anyone. 
-
-keep in mind that we are not allowed to code earlier.
